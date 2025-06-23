@@ -86,5 +86,5 @@ I'm always open to feedback, suggestions, and collaborations! If you’re intere
 
 - **GitHub**: [Chitrakar09](https://github.com/Chitrakar09)  
 - **Email**: [chitrakarpratyush@gmail.com](mailto:chitrakarpratyush@gmail.com)  
-- **Instagram**: [Chitrakar_09](https://www.instagram.com/chitrakar_09/)  
-- **Facebook**: [Chitrakar09](https://www.facebook.com/chitrakar09)
+- **Instagram**: [chitrakar_09](https://www.instagram.com/chitrakar_09/)  
+- **Facebook**: [Chitrakar Piyush](https://www.facebook.com/chitrakar09)
